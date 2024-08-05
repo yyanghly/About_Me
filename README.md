@@ -1,4 +1,4 @@
-# Huang Leyang Charlotte - Exploring the Frontiers of AI and Emerging Tech
+# Huang Leyang Charlotte - About Me
 
 [Link to my CV](https://drive.google.com/file/d/1Eo_Wzcr6Nhoj5HMpcEFJTWoRYPIA1MBB/view?usp=sharing)
 
