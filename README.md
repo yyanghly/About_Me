@@ -24,4 +24,3 @@ And if that wasn't enough, I've also delved into the realm of digital storytelli
 
 As I continue my academic journey, I'm constantly seeking new opportunities to learn, grow, and collaborate with like-minded individuals. Whether it's exploring the latest advancements in 3D reconstruction, delving into the intricacies of mobile app development, or tackling the ethical challenges of AI, I'm always eager to dive in and contribute my skills and passion.
 
-So, if you're as excited about the future of technology as I am, I'd love to connect and explore the possibilities together. Let's push the boundaries of what's possible and create something truly remarkable!
